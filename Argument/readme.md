@@ -53,3 +53,8 @@ _What is assumed or supposed, perhaps without proof or justification_
 4. Implication
 
 _What is not stated, but necessarily follows from what is stated_
+
+### Example Draft
+
+while it may true that... the author does not make a cogent case for increased resources based on river use.
+
