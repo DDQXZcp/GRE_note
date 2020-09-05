@@ -13,3 +13,7 @@ To expand in this point, it is important for teachers  to be careful when workin
 Ignoring bullying action will be absurd and negligent.
 
 There could be a lot of merit adopting the its basic principles. Data proves that... In fact, xxx creates a more stable and efficient classroom. It needs to be stressed, however, that this is only effective at certain levels of misbehavior. attention seeking(work), precipitated by revenge, power or total self-worthlessness(not work)
+
+5-score:
+
+Conversely
